@@ -1,0 +1,2 @@
+
+<p>You know, this is - excuse me - a damn fine cup of coffee! Now, I'd like two eggs, over hard. I know, don't tell me; it's hard on the arteries, but old habits die hard - just about as hard as I want those eggs. Bacon, super-crispy. Almost burned. Cremated. That's great. And, I'll have the grapefruit juice, just as long as those grapefruits...</p>
